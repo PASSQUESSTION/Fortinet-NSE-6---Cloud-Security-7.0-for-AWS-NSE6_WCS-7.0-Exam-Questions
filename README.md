@@ -1,0 +1,1 @@
+# Fortinet-NSE-6---Cloud-Security-7.0-for-AWS-NSE6_WCS-7.0-Exam-Questions
